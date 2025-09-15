@@ -20,7 +20,7 @@
 
 - 📫 How to reach me **rahatahmed1447@gmail.com**
 
-- ⚡ Fun fact **⚡ I can debug faster with music playing 🎧**
+- ⚡ Fun fact **I can debug faster with music playing 🎧**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
